@@ -10,3 +10,4 @@ I heard <i>they</i> said it looks like <i>rain</i>...
 ## 🎀 What You Should Know...About Me _!_</br>
 </br>
 Hi! My preferred online name is <b><span style="color:#EE0187">transluzentt</span></b>, but you may also know me as <b>dragondudes3</b>, <b>Strawberry</b> or maybe even <b>jupitera</b>, if you knew me long enough.</br>
+My preferred pronouns are generally <b><span style="color:#EE0187">she/ze/they/starself</span></b>, but I’m okay with any pronouns being used to refer to me.
