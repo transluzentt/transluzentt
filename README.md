@@ -1,8 +1,8 @@
 <img width="1280" height="144" alt="Untitled336_20260420171644" src="https://github.com/user-attachments/assets/a0149cdb-aab5-467b-a2e6-9231c1d2454b" /></br>
 # 🎀 Hello Dear Viewer _!_ </br>
 </br>
-Did you see the _news_ today?</br>
-I heard _they_ said it looks like _rain_...
+Did you see the <i>news</i> today?</br>
+I heard <i>they</i> said it looks like <i>rain</i>...
 </br>
 </br>
 <img width="1280" height="50" alt="IMG_5334" src="https://github.com/user-attachments/assets/f0071f41-39cc-496a-8532-b9f29359013a" />
