@@ -1,4 +1,4 @@
-## Hi there 👋
+## im still figuring this out leave me alone
 
 <!--
 **transluzentt/transluzentt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
